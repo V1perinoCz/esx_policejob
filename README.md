@@ -15,4 +15,4 @@ In script is locales only for CZ and EN. When you want your language add in the 
 
 Thank you for adding my edit script on your server.
 
-I will be happy for + rep on my discord : https://discord.com/invite/sRXGdDN
+I will be happy for + rep on my discord : https://discord.gg/VD7CRj5KpN
